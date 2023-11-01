@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LUXUS1
-- 👀 I’m interested in CV and 各类文玩🧠🧠🧠
+- 👀 I’m interested in CV and 🧠🧠🧠
 - 🌱 I’m currently learning NLP.
 
 <!---
